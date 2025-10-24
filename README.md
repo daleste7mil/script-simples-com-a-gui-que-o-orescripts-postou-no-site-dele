@@ -1,0 +1,1 @@
+# script-simples-com-a-gui-que-o-orescripts-postou-no-site-dele
